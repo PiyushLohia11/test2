@@ -2,7 +2,7 @@ Sure — here are **100 random places** from around the world:
 
 1. Tokyo, Japan  
 2. Sahara Desert, Africa  
-3. Venice, Italy  
+3. Rome, Italy  
 4. Banff National Park, Canada  
 5. Machu Picchu, Peru  
 6. Reykjavik, Iceland  
